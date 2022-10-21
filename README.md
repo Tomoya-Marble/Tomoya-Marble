@@ -1,4 +1,4 @@
-# 自己紹介
+# Overview / 自己紹介
 Tomoya_Marble = pineapple-pizza
-## Link
+## Link / リンク
 https://twitter.com/Tomoya_Marble
