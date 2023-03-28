@@ -1,5 +1,5 @@
 # Tomoya_Marble
-
+一般通過一般人です
 ## Profile / プロフィール
 "Pineapple Belongs on Pizza🍍🍕"<br>
 DICE Friend (Battlefield V)
